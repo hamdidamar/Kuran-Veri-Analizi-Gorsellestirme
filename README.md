@@ -1,0 +1,1 @@
+# Kuran-Veri-Analizi-G-rselle-tirme
